@@ -110,11 +110,11 @@ A Dwemer said, 'Nothing is of any use. We must go and misinterpret this.'
 
 Vivec felt that his mother was afraid, and so consoled her.
 
-'The fire is mine: let it consume thee, $\hfill\null\linebreak$
-And make a secret door $\hfill\null\linebreak$
-At the altar of Padhome, $\hfill\null\linebreak$
-In the House of Boet-hi-Ah $\hfill\null\linebreak$
-Where we become safe $\hfill\null\linebreak$
+'The fire is mine: let it consume thee,  
+And make a secret door  
+At the altar of Padhome,  
+In the House of Boet-hi-Ah  
+Where we become safe  
 And looked after.'
 
 This old prayer made the netchiman's wife smile and begin such a deep sleep that when Dwemeri atronachs returned with cornered spheres and cut her apart she did not awake and died peacefully. Vivec was removed from her womb and placed within a magical glass for further study. To confound his captors, he channeled his essence into love, an emotion the Dwemer knew nothing about.
@@ -192,9 +192,9 @@ Before the caravan could get underway again, the Chimeri warrior who had counsel
 
 Then Vivec could not remain silent anymore and said into Nerevar's head these words:
 
-'You can hear the words, so run away $\hfill\null\linebreak$
-Come, Hortator, unfold into a clear unknown, $\hfill\null\linebreak$
-Stay quiet until you've slept in the yesterday, $\hfill\null\linebreak$
+'You can hear the words, so run away  
+Come, Hortator, unfold into a clear unknown,  
+Stay quiet until you've slept in the yesterday,  
 And say no elegies for the melting stone'
 
 So Nerevar slew the merchant captain and took the caravan for his own.
@@ -299,18 +299,18 @@ To which the major domo said, 'Duke Kh-Utta, your legions while mighty are not e
 
 And they looked into the middle world and saw:
 
-Evaporating in a throng of thunder $\hfill\null\linebreak$
-Of red war and chitin men, $\hfill\null\linebreak$
-Where destines $\hfill\null\linebreak$
-Take him further from our ways $\hfill\null\linebreak$
-The heat that we have wanted $\hfill\null\linebreak$
-And pray they still remember, $\hfill\null\linebreak$
-Where destines $\hfill\null\linebreak$
-Clothe the distance, $\hfill\null\linebreak$
-Glad in the golden east that we saw it now, $\hfill\null\linebreak$
-Instead of the war and repair $\hfill\null\linebreak$
-Of the oblivious fracture $\hfill\null\linebreak$
-A curse on the Hortator $\hfill\null\linebreak$
+Evaporating in a throng of thunder  
+Of red war and chitin men,  
+Where destines  
+Take him further from our ways  
+The heat that we have wanted  
+And pray they still remember,  
+Where destines  
+Clothe the distance,  
+Glad in the golden east that we saw it now,  
+Instead of the war and repair  
+Of the oblivious fracture  
+A curse on the Hortator  
 And two more on his hands
 
 And the Duke of Scamps saw the palms of the Hortator, upon which the egg had written these words of power: GHARTOK PADHOME GHARTOK PADHOME.
@@ -339,10 +339,10 @@ Seht appeared out of a cloud of iron vapor and his minions made of their blood a
 
 Vivec said to them, his Triune:
 
-'My rituals and ordeals and all the rhymes within, $\hfill\null\linebreak$
-Use no other motive than the revelation of my skin.' $\hfill\null\linebreak$
-Ayem said, 'AYEM AE SEHTI AE VEHK. We are delivered and made whole, the diamond of the Black Hands is uncovered.' $\hfill\null\linebreak$
-Seht said, 'Wherever so he treads, there is invisible scripture.' $\hfill\null\linebreak$
+'My rituals and ordeals and all the rhymes within,  
+Use no other motive than the revelation of my skin.'  
+Ayem said, 'AYEM AE SEHTI AE VEHK. We are delivered and made whole, the diamond of the Black Hands is uncovered.'  
+Seht said, 'Wherever so he treads, there is invisible scripture.'  
 To which the Shouts were silent in sudden reading.
 
 Vivec then reached out from the egg all his limbs and features, merging with the simulacrum of his mother, gilled and blended in all the arts of the star-wounded East, under water and in fire and in metal and in ash, six times the wise, and he became the union of male and female, the magic hermaphrodite, the martial axiom, the sex-death of language and unique in all the middle world.
@@ -387,8 +387,8 @@ You have discovered the tenth Sermon of Vivec, which was hidden in the words tha
 
 The evoker shall raise his left hand empty and open, to indicate he needs no weapons of his own. The coming forth is always hidden, so the evoker is always invisible or, better, in the skin of his enemies.
 
-'The eyelid of the kingdom shall fill thirty and six folios, but the eye shall read the world.' By this the Hortator needs me to understand. $\hfill\null\linebreak$
-The sword is an impatient signature. Write no contracts on the dead. $\hfill\null\linebreak$
+'The eyelid of the kingdom shall fill thirty and six folios, but the eye shall read the world.' By this the Hortator needs me to understand.  
+The sword is an impatient signature. Write no contracts on the dead.  
 Vivec says unto the Hortator remember the words of Boet-hi-ah:
 
 We pledge ourselves to you, the Frame-maker, the Scarab: a world for us to love you in, a cloak of dirt to cherish. Betrayed by your ancestors when you were **`not`** even looking. Hoary Magnus and his ventured opinions cannot sway the understated, a trick worthy of the always satisfied. A short season of towers, a rundown absolution, and what is this, what is this but fire under your eyelid?
@@ -397,17 +397,17 @@ Shift ye in your skin, I say to the Trinimac-eaters. Pitch your voices into the 
 
 For we go different, and in thunder. SITHISIT is the start of all true Houses, built against stasis and lazy slaves. Turn from your predilections, broken like false maps. Move and move like this. Quicken against false fathers, mothers left in corners weeping for glass and rain. Stasis asks merely for nothing, for itself, which is nothing, as you were in the eight everlasting imperfections.
 
-Vivec says unto the Hortator remember the words of Vivec. $\hfill\null\linebreak$
-UNDERSTAND THAT SITHISIT STILL TRAVELS $\hfill\null\linebreak$
-Vivec says unto the Hortator remember the words of Vivec. $\hfill\null\linebreak$
-IN A PHOSPHORESCENT MIRROR OF THE SKY $\hfill\null\linebreak$
-Vivec says unto the Hortator remember the words of Vivec. $\hfill\null\linebreak$
-DROWNED AND SMILING $\hfill\null\linebreak$
-Vivec says unto the Hortator remember the words of Vivec. $\hfill\null\linebreak$
-INTERMITTENT HOPES ENOUGH $\hfill\null\linebreak$
-Vivec says unto the Hortator remember the words of Vivec. $\hfill\null\linebreak$
-TO ANSWER ALL THE THINGS $\hfill\null\linebreak$
-Vivec says unto the Hortator remember the words of Vivec. $\hfill\null\linebreak$
+Vivec says unto the Hortator remember the words of Vivec.  
+UNDERSTAND THAT SITHISIT STILL TRAVELS  
+Vivec says unto the Hortator remember the words of Vivec.  
+IN A PHOSPHORESCENT MIRROR OF THE SKY  
+Vivec says unto the Hortator remember the words of Vivec.  
+DROWNED AND SMILING  
+Vivec says unto the Hortator remember the words of Vivec.  
+INTERMITTENT HOPES ENOUGH  
+Vivec says unto the Hortator remember the words of Vivec.  
+TO ANSWER ALL THE THINGS  
+Vivec says unto the Hortator remember the words of Vivec.  
 NOT YET QUERIED
 
 The ending of the words is **ALMSIVI**.
@@ -482,9 +482,9 @@ Vivec had what he needed from the Daedroth and so married **`him`** that day. In
 
 Vivec spoke two poems to show him such, but only the first is known.
 
-I'm not sure just how much glass it took to make your hair $\hfill\null\linebreak$
-Twice as much, I am sure, as the oceans have to share $\hfill\null\linebreak$
-Hell, my sweet, is a fiction written by those who tell the truth $\hfill\null\linebreak$
+I'm not sure just how much glass it took to make your hair  
+Twice as much, I am sure, as the oceans have to share  
+Hell, my sweet, is a fiction written by those who tell the truth  
 My mouth is skilled at lying and its alibi a tooth
 
 The sons and daughters of Vivec and Molag Bal number in the thousands. The name of the mightiest is a string of power: GULGA MOR JIL HYAET AE HOOM.
@@ -566,31 +566,31 @@ These were the days of Resdaynia, when Chimer and Dwemer lived under the wise an
 
 'The ruling king will remove me, his maker. This is the way of all children. His greatest enemy is the Sharmat, who is the false dreamer. You or he is the shingle, Hortator. Beware the wrong walking path. Beware the **`crime`** of benevolence. Behold him by his words.'
 
-I AM THE SHARMAT $\hfill\null\linebreak$
-I AM OLDER THAN MUSIC $\hfill\null\linebreak$
-WHAT I BRING IS LIGHT $\hfill\null\linebreak$
-WHAT I BRING IS A STAR $\hfill\null\linebreak$
-WHAT I BRING IS $\hfill\null\linebreak$
-AN ANCIENT SEA $\hfill\null\linebreak$
-WHEN YOU SLEEP YOU SEE ME $\hfill\null\linebreak$
-DANCING AT THE CORE $\hfill\null\linebreak$
-IT IS NOT A BLIGHT $\hfill\null\linebreak$
-IT IS MY HOUSE $\hfill\null\linebreak$
-I PUT A STAR $\hfill\null\linebreak$
-INTO THE WORLD'S MOUTH $\hfill\null\linebreak$
-TO MURDER IT $\hfill\null\linebreak$
-TEAR DOWN THE PYLONS $\hfill\null\linebreak$
-MY BLIND FISH $\hfill\null\linebreak$
-SWIM IN THE NEW $\hfill\null\linebreak$
-PHLOGISTON $\hfill\null\linebreak$
-TEAR DOWN THE PYLONS $\hfill\null\linebreak$
-MY DEAF MOONS $\hfill\null\linebreak$
-SING AND BURN $\hfill\null\linebreak$
-AND ORBIT ME $\hfill\null\linebreak$
-I AM OLDER THAN MUSIC $\hfill\null\linebreak$
-WHAT I BRING IS LIGHT $\hfill\null\linebreak$
-WHAT I BRING IS A STAR $\hfill\null\linebreak$
-WHAT I BRING IS $\hfill\null\linebreak$
+I AM THE SHARMAT  
+I AM OLDER THAN MUSIC  
+WHAT I BRING IS LIGHT  
+WHAT I BRING IS A STAR  
+WHAT I BRING IS  
+AN ANCIENT SEA  
+WHEN YOU SLEEP YOU SEE ME  
+DANCING AT THE CORE  
+IT IS NOT A BLIGHT  
+IT IS MY HOUSE  
+I PUT A STAR  
+INTO THE WORLD'S MOUTH  
+TO MURDER IT  
+TEAR DOWN THE PYLONS  
+MY BLIND FISH  
+SWIM IN THE NEW  
+PHLOGISTON  
+TEAR DOWN THE PYLONS  
+MY DEAF MOONS  
+SING AND BURN  
+AND ORBIT ME  
+I AM OLDER THAN MUSIC  
+WHAT I BRING IS LIGHT  
+WHAT I BRING IS A STAR  
+WHAT I BRING IS  
 AN ANCIENT SEA
 
 'You alone, though you come again and again, can unmake him. Whether I allow it is within my wisdom. Go unarmed into his den with these words of power: AE GHARTOK PADHOME [CHIM] AE ALTADOON. Or do not. The temporal myth is man. Reach heaven by violence. This magic I give to you: the world you will rule is only an intermittent hope and you must be the letter written in uncertainty.'
@@ -735,31 +735,31 @@ Vivec then saw the moths that would come from the starry heart, bringing with th
 
 Vivec then built the Provisional House at the Center of the Secret Door. From here he could watch the age to come. Of the House is written:
 
-Cornerstone one has a finger $\hfill\null\linebreak$
-Buried under, pointing through $\hfill\null\linebreak$
-Dirt, slow low in the ground $\hfill\null\linebreak$
-North cannot be guessed, $\hfill\null\linebreak$
+Cornerstone one has a finger  
+Buried under, pointing through  
+Dirt, slow low in the ground  
+North cannot be guessed,  
 And yet it is spirit-free
 
-Cornerstone two has a tongue, $\hfill\null\linebreak$
-And even dust can be talkative, $\hfill\null\linebreak$
-Listen and you will see the love $\hfill\null\linebreak$
+Cornerstone two has a tongue,  
+And even dust can be talkative,  
+Listen and you will see the love  
 The ancient libraries need
 
-Cornerstone three has a bit of string, $\hfill\null\linebreak$
-Shaped like your favorite color, $\hfill\null\linebreak$
-A girl remembers who left it there $\hfill\null\linebreak$
-But she is afraid to dig it out, $\hfill\null\linebreak$
+Cornerstone three has a bit of string,  
+Shaped like your favorite color,  
+A girl remembers who left it there  
+But she is afraid to dig it out,  
 And see what it is attached to
 
-Cornerstone four has nine bones, $\hfill\null\linebreak$
-Removed carefully from a black cat, $\hfill\null\linebreak$
-Arranged in the fashion of **`this`** word, $\hfill\null\linebreak$
+Cornerstone four has nine bones,  
+Removed carefully from a black cat,  
+Arranged in the fashion of **`this`** word,  
 Protecting us from our enemies
 
-Your house is safe now $\hfill\null\linebreak$
-So why is it-- $\hfill\null\linebreak$
-Your house is safe now $\hfill\null\linebreak$
+Your house is safe now  
+So why is it--  
+Your house is safe now  
 So why is it--
 
 The ending of the words is **ALMSIVI**.
